@@ -1,0 +1,1 @@
+# Kullan-l-Otomasyon-uygulamas-
